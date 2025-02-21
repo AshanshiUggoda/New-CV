@@ -46,8 +46,8 @@
 
 ##  Contact
 - *Phone:* +94 778 448 810 / +94 764 181 177
-- *Email:* [ashanshins99@gmail.com](mailto:ashanshins99@gmail.com)
-- *Location:* M16, In Front of Shop House, Oruwala, Athurugiriya, Sri Lanka
+- *Email:* ashanshins99@gmail.com
+- *Location:* M16, Zone 2, MIllennium city, Athurugiriya, Sri Lanka
 
 ---
 
