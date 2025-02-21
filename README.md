@@ -2,7 +2,7 @@
 
 ## About Me
 <p align="justify">I am a motivated professional with a growing interest in information technology and a solid foundation in education and leadership. I aim to leverage my skills and knowledge to contribute effectively to organizational goals while pursuing personal and professional growth in the IT field. </p>
----
+
 
 ##  Education
 
