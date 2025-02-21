@@ -40,7 +40,7 @@ I am a motivated professional with a growing interest in information technology 
 
 ##  English Proficiency
 - *IELTS:* Overall Band Score 5.5 (Speaking 6.0, Writing 5.5, Reading 5.5, Listening 5.0)
-- *PTE:*Overall Score 52 (Writing: 51, Listening: 49, Reading: 53, Speaking: 55).
+- *PTE:* Overall Score 52 (Writing: 51, Listening: 49, Reading: 53, Speaking: 55).
 
 ---
 
